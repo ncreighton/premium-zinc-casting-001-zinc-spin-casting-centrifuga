@@ -1,0 +1,2 @@
+# premium-zinc-casting-001-zinc-spin-casting-centrifuga
+Stop losing your perfect spin-casting settings in a sea of sticky notes and scrap metal—your next flawless zinc cast starts here.  This Notion template transforms your chaotic workspace into a systematic craft lab, centralizing alloy recipes, spin speeds, mold designs, and project timelines. No more guesswork: replicate your best results every time
